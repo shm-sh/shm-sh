@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Shaurya Modi.
-- 👀 I’m currently a Engineering Undergrate Student at MNNIT Allahabad, India.
+- 👀 I’m currently a Senior Undergrad at MNNIT Allahabad, India.
 - 🌱 I’m currently learning Business Analysis, Business, Consultancy and Biotechnology.
 - 💞️ I’m looking to collaborate on any interesting ideas/ Projects that I you are interested in.
 - 📫 Do connect with me on linkedin: https://www.linkedin.com/in/shauryamodi/.
